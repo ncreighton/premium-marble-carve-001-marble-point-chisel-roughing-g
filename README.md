@@ -1,0 +1,2 @@
+# premium-marble-carve-001-marble-point-chisel-roughing-g
+Roughing out marble without a structured method wastes hours and creates uneven surfaces. The Marble Point Chisel Roughing Guide eliminates guesswork by giving you a proven Notion system that tracks every chisel strike, technique, and progress milestone.  This template transforms marble carving from chaotic trial-and-error into a methodical, tracka
